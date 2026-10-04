@@ -1,5 +1,1 @@
-https://drive.google.com/drive/folders/1eCFtj_1MS9wXv6k6U_SFtfzenmYjfLll
-\n
-https://jobing.site/c/bgt_stm
-\n
-https://jobing.site/c/bgt_sdc
+https://chatgpt.com/share/6ac2e63b-46fc-83e8-bde6-f6003aaf8ee8
